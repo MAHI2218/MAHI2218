@@ -1,4 +1,4 @@
-# Hi 👋, I'm Om Mahendra Reddy
+# Hi 👋, I'm Mahendra Reddy
 
 ### B.Tech AI/ML Student | Developer | DevOps Learner
 
